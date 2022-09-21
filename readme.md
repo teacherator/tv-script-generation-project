@@ -54,4 +54,6 @@ moe_szyslak: so sad.
 singers: don't got no candy, i only serve beer, and who said that you take any more.
 carl_carlson:(teenage girl) ohmygod, ohmygod, ohmygod....
 
+forking to teacherator
+
 
